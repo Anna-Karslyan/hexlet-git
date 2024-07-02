@@ -1,1 +1,1 @@
-hello, github
+hello, my friend
